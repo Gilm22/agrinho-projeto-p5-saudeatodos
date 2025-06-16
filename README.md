@@ -1,0 +1,3 @@
+Coletei informações da IA- O objetivo do programa "Saúde a todos do campo à cidade" é promover a saúde e o bem-estar de toda a população, tanto em áreas rurais quanto urbanas, através de ações que visam reduzir as desigualdades no acesso à saúde e garantir um atendimento de qualidade para todos. 
+Informações IA- Em detalhes, o programa busca: 1. Garantir o acesso universal à saúde; 2. Reduzir desigualdades; 3. Promover a saúde e prevenir doenças; 4. Qualificar os serviços de saúde; 5. Intervir nos determinantes sociais da saúde; 6. Fortalecer a participação social;
+Todas essas informações foi buscadas na IA.
